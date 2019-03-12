@@ -1,1 +1,1 @@
-This is my resume.  Simply download, and view!
+This is my resume.  Simply click on it, and view!
